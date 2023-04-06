@@ -1,0 +1,2 @@
+# g-ko
+gökooooooooooooooooooooooo45
